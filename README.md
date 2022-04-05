@@ -16,6 +16,10 @@ O objetivo proposto pelo coordenador foi atingido durante e no final do contrato
 
 ## Autor
 
+Jaqueline Cella
+* Linkedin- @jaqueline-cella
+* Github- @jaquelinecella
+
 
 
 
